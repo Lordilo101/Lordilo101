@@ -6,10 +6,10 @@
 
 [Intro]
 Wii, wii, wii, wii
-Rambow on the fucking track
+Philip on the fucking track
 Uh, uh, uh
 Uh, uh, uh, uh
-Rambow, 1052 lil nigga
+Philip, 1052 lil ginga
 Grr pow, grr pow, grr pow
 
 [Vers 1]
